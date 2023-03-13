@@ -1,2 +1,2 @@
 # ParkSejin
-세진쓰 퐐로퐐로미  (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ 어서 와 나한테 온 걸 환영해 ~ (≧∇≦)ﾉ 
+<img src="https://user-images.githubusercontent.com/93020734/224773474-8803e061-9013-42eb-ae76-c595e1a7263a.png" width="600" height="300" />
